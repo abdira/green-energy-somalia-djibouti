@@ -112,8 +112,7 @@ CGPA: 3.9/4.0 | Dean's List | Top 1% in Security Disciplines
 🔗 [github.com/abdira](https://github.com/abdira)  
 🔗 [linkedin.com/in/abdirahman-ali](https://linkedin.com/in/abdirahman-ali)  
 
-*Applying to: MSc Environment, Politics and Development, SOAS University of London*  
-*Hyundai Motor Group Scholarship Candidate*
+
 
 ---
 
